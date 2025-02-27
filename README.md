@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Aldrick!
+# 👋 Hi, I'm Kit!
 🧑‍💻 Studying Bachelor of Science in Information Technology<br>
 🏫 Bulacan State University - Main Campus<br>
 📖 Love to read stories especially manhwas<br>
